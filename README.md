@@ -2,4 +2,5 @@
 
 <p align="center"
 
-Do not copy my skins, unless i give it as a gift to FRIENDS only. If you do, i'll block you.
+Do not copy my skins, unless i give it as a gift to FRIENDS only. If you do, i'll block you. ( no color pickin either. )
+AND do not post my skins on pinterest, you do not have my permission.
